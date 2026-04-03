@@ -58,3 +58,7 @@ Smart agriculture & greenhouse automation
 Urban farming solutions
 Research and environmental monitoring
 Resource-efficient crop production
+
+Naman Shah FE BTech Mechanical
+Thakur College (Tcet)
+Mumbai India
